@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Ball](https://unicphscat.blob.core.windows.net/images-prd/s2702801.png)
